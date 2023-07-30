@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Adamchen566
+- 👀 I’m interested in cycling, valorant, coding...
+- 🌱 I’m currently learning at University of Melbourne
+- 💞️ I’m looking to collaborate on learning new coding language
+- 📫 How to reach me 205637794@qq.com
